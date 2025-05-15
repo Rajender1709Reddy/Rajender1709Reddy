@@ -28,7 +28,7 @@
 
 ## 📫 How to reach me:
 - ✉️ Email: [mucherlarajender@gmail.com](mailto:mucherlarajender@gmail.com)
-- 💼 LinkedIn: [linkedin.com/in/rajender-reddy](https://www.linkedin.com/in/rajender-reddy/)
+- 💼 LinkedIn: [linkedin.com/in/rajender-mucherla/]((https://www.linkedin.com/in/rajender-mucherla/)/)
 
 ---
 
